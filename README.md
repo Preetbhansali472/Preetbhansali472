@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **preetbhansali472@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1tzsSF7KuU_5BgwsPIZF25Jfz7hio9wTtInfg19bFxKo/edit?usp=drivesdk](https://docs.google.com/document/d/1tzsSF7KuU_5BgwsPIZF25Jfz7hio9wTtInfg19bFxKo/edit?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14H9dFRRLKLPBOe-qngZ8bMrSASbHfsdp](https://drive.google.com/file/d/14H9dFRRLKLPBOe-qngZ8bMrSASbHfsdp)
 
 - ⚡ Hobbies **Swimming,Cycling**
 
