@@ -5,7 +5,6 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=preetbhansali472&label=Profile%20views&color=0e75b6&style=flat" alt="preetbhansali472" /> </p>
 
 
-- 🔭 I’m currently working on **Social App Using React**
 
 - 🌱 I’m currently learning **Machine Learning**
 
